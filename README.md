@@ -2,6 +2,8 @@
 Актуальный бонус код и промокод для Daddy Casino **DC777** бонус 100 FS за регистрацию. 
 Чтобы активировать в Daddy casino бонус 100 фриспинов, промокод Daddy casino нужно ввести в момент регистрации в казино. После регистрации бонус в Daddy casino станет автоматически доступен для игры. 
 
+ВВОДИ ПРОМОКОД **DC777** ПРИ РЕГИСТРАЦИИ НА ОФИЦИАЛЬНО САЙТЕ КАЗИНО [DADDY CASINO](https://linkcasino.ru/daddy_vip)
+
 ![Daddy casino промокод](https://github.com/user-attachments/assets/8170f592-bf8a-4ae1-b5f3-4847eab1cdbf)
 
 
